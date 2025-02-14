@@ -2,7 +2,15 @@
 
 The 2025 Scotties Tournament of Hearts, Canada's premier women's curling championship, is poised to be a historic event, offering thrilling action and showcasing the immense talent of the nation's top curlers.
 
+✅No Hidden Charges✅
+
+[**⭕CLIC HERE TO WATCH: Scotties Curling LIVE Streaming Anywhere**](https://curling.fanfanatics.live/?refd_by=a2znow)
+
+[**⭕CLIC HERE TO WATCH: Scotties Curling LIVE Streaming Anywhere**](https://curling.fanfanatics.live/?refd_by=a2znow)
+
 As the curling season shifts into high gear, anticipation is building for this prestigious competition, which will be held in Prince George, British Columbia, from February 14 to 23, 2025. With a fresh set of faces and returning champions, the 2025 edition promises to be one of the most exciting and unpredictable tournaments in recent years.
+
+[![image](https://github.com/user-attachments/assets/312dcbeb-bf77-4b14-9e99-34a530a2bebc)](https://curling.fanfanatics.live/?refd_by=a2znow)
 
 The Venue: Prince George, British Columbia
 
